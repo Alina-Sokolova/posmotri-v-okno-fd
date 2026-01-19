@@ -1,1 +1,0 @@
-https://github.com/Alina-Sokolova/posmotri-v-okno-fd 
